@@ -1,2 +1,1 @@
-# Learning-with-Ai
-AI can help with proper study participation ?
+IA can help proper for study ?
